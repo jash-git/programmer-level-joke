@@ -1,0 +1,4 @@
+﻿程式設計師等級圖鑑[programmer level joke] (看到下面這組圖，我確定自己是菜鳥[嫩咖])
+
+資料來源:https://mp.weixin.qq.com/s?__biz=MzI0MDQ4MTM5NQ==&mid=2247490232&idx=3&sn=b70581c7301154a95fbe273433ffc84f&chksm=e91b7fa4de6cf6b27eefeb5366ff1285d379da764041e936dface518bb69dcc13340493316b8&scene=0&xtrack=1&key=a63109c5a100aa9cd462741aa25360cd4587f80850f4cf3b010ac6483f8464519751e8b8554dc664f3b49a85a16e72d026ba07f1de6453d16c90811b8e1448442a89b04c55bf496e519c2f0bed071345&ascene=1&uin=MjIwODk2NDgxNw%3D%3D&devicetype=Windows+10&version=62060833&lang=zh_TW&pass_ticket=iaFaZMelnn8Py43FVDqYh2I9iI2ys%2B59F7nuMACc9Z44LC%2FHeYkQIQz6Dy1PB8aL
+
